@@ -2,7 +2,7 @@
 
 Universität Potsdam
 Wirtschafts- und Sozialwissenschaftliche Fakultät
-Professur für Vergleichende Politikwissenschaft
+Professur für Methoden der empirischen Sozialforschung
 
 "Der Einfluss von US-Wirtschaftssanktionen auf die Demokratisierung in den Zielländern seit 1945"
          
